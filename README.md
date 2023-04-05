@@ -1,1 +1,1 @@
-# Genome-and-Gentics
+# Genome-and-Genetics
